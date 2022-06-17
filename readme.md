@@ -3,4 +3,3 @@
 commit change
 
 remote change
-local change
