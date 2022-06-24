@@ -23,3 +23,6 @@ Somebody grabbed his collar
 He cried the whole way home
 No one remembered a thing when they saw him again
 That's how it is 'til the end (Yeah)
+
+
+* The Wiggles re-did this song
