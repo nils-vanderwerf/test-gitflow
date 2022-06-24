@@ -12,7 +12,6 @@ Oh look, hey, there he is now coming down the stairs
 (Here he comes)
 
 
-
 [Instrumental Break]
 
 [Verse 2]
