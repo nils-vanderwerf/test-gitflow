@@ -18,7 +18,7 @@ Oh look, hey, there he is now coming down the stairs
 He pulled the mirrors off his Cadillac (Yeah)
 'Cause he doesn't like it looking like he looks back
 He talks like his opinion is a simple fact
-Somebody grabbed his collar
+Somebody grabbed his collary
 He cried the whole way home
 No one remembered a thing when they saw him again
 That's how it is 'til the end (Yeah)
