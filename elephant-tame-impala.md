@@ -12,7 +12,6 @@ Oh look, hey, there he is now coming down the stairs
 (Here he comes)
 
 
-
 [Instrumental Break]
 
 [Verse 2]
@@ -23,3 +22,6 @@ Somebody grabbed his collar
 He cried the whole way home
 No one remembered a thing when they saw him again
 That's how it is 'til the end (Yeah)
+
+
+* The Wiggles re-did this song
